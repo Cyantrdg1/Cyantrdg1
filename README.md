@@ -1,0 +1,9 @@
+-  Hi, I’m Mohammad Etminan
+-  I’m working in Commerce , Import - Export
+-  Export : Costruction Material such as Cement to CIS Countries (Russia , Kazakhstan , Turkmenistan)
+-  Import : Alumin Powder from Kazakhstan 
+-  I’m currently learning important things about Trading
+-  I’m looking to collaborate on Trading
+-  My Country : Iran , Gorgan City 
+-  Contact No.: +989901402017
+-  Social Media : Whatsapp . Telegram . Imo . Botim . Eitaa
